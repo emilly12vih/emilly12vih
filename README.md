@@ -15,3 +15,5 @@ Meu nome é Emilly
 ### vocẽ pode entrar em contato comigo🫀
 
 @bah.emilly
+
+emilly.natal@escola.pr.gov.br
